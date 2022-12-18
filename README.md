@@ -9,3 +9,4 @@
 * [Ahlzagailzeguh](https://www.discogs.com/artist/207081-Ahlzagailzehguh) + [Stroma](https://www.discogs.com/artist/1576191-Stroma-3)
 * Prurient (some dark ambient and field recordings in his work exist [ex1](https://www.youtube.com/watch?v=cvyfB_Zo1m8))
 * [Self](https://www.discogs.com/artist/361693-Self-3) + [Slogun](https://www.discogs.com/artist/73140-Slogun)
+* Khoufar + Crown of Cerberus
