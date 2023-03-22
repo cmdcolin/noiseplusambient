@@ -12,6 +12,7 @@
 * [Slogun](https://www.discogs.com/artist/73140-Slogun) + [Self](https://www.discogs.com/artist/361693-Self-3)
 * [Khoufar](https://www.discogs.com/artist/1260599-Koufar) + [Crown of Cerberus](https://www.discogs.com/artist/2524447-Crown-Of-Cerberus)
 * [Yellow Tears](https://www.discogs.com/artist/1260599-Koufar) + [Crown of Cerberus](https://www.discogs.com/artist/2524447-Crown-Of-Cerberus)
+* [Sunken Cheek](https://www.discogs.com/artist/2512312-Sunken-Cheek) + [Goddaughter](https://www.discogs.com/artist/4711251-Goddaughter)
 
 ### Projects with mixed outputs
 
